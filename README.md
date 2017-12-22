@@ -1,2 +1,2 @@
 # Laxmicoin
-Laxmicoin Crypto Currency https://laxmicoin.com/
+Laxmicoin Crypto Currency
